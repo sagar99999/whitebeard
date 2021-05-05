@@ -3,6 +3,6 @@
 2. Marco
 3. Ace -> Blackbeard (Past before the Ace)
 4. Jimbei
-5. Diamod Zoju
+5. Diamond Zoju
 6. Shanks
 7. Mokey D. Luffy
