@@ -7,4 +7,4 @@
 
 ## Temporary Ally
 6. Shanks
-7. Mokey D. Luffy
+7. Monkey D. Luffy
