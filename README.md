@@ -10,4 +10,5 @@
 7. Mokey D. Luffy
 8. Roger pirates
 
-Coco loco
+Queen
+Deep Purple
