@@ -8,3 +8,4 @@
 ## Temporary Ally
 6. Shanks
 7. Monkey D. Luffy
+8. Roger pirates
