@@ -10,6 +10,4 @@
 7. Mokey D. Luffy
 8. Roger pirates
 
-Queen
-Deep Purple
-AC/DC
+Sagar MAGAR
